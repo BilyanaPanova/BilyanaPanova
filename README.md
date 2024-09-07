@@ -1,1 +1,2 @@
-!<img src="https://softuni.bg/certificates/certificates/converttoimage/187228?code=23c4a583" width="1000">(https://softuni.bg/certificates/certificates/converttoimage/187228?code=23c4a583)
+
+!<img src="https://github.com/user-attachments/assets/39573880-6cf6-47cb-a61f-6fd40785cea2" width="2000">
